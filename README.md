@@ -1,1 +1,1 @@
-# lokasi
+Ini adalah lokasi Toko Sepeda Sinar Jaya Samarinda.
